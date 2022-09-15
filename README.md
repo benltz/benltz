@@ -9,7 +9,7 @@
 
 ✔️・**Latest open source project [in progess](https://github.com/users/benltz/projects/1)**
 
-📩・**Want to reach? Join my [discord](-)**
+📩・**Want to reach? Join my [discord](https://discord.gg/GMX4yXZqzF)**
 
 🌐・**Website: COMING SOON!**
 
